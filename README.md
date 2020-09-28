@@ -1,1 +1,1 @@
-# Assignmnets-Repo
+# Assignments-Repo
